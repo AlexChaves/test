@@ -1,1 +1,1 @@
-I love :tea:, :hamburger: and :sports:
+I love :tea:, :hamburger: and :sport:
